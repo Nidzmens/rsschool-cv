@@ -1,6 +1,6 @@
 # Ayan Galimzhanov
 
-## Contract Information:
+## Contact Information:
  **Email:** ayan.s.galimzhanov@gmail.com\
  **Tel:** +7 (707) 212 60 10\
  **Telegram:** @nidzmens\
